@@ -13,7 +13,7 @@
 
 - 👯 I’m looking to collaborate on **OpenSource Projects**
 
-- 📫 How to reach me **subham.raoniar@gmail.com**
+- 📫 How to reach me **hereisad502@gmail.com**
 
 - ⚡ Fun fact **I play Football and go to the GYM very often.**
 
